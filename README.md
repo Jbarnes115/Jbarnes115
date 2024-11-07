@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Jbarnes115
 - 👀 I’m interested in emo music and coding
-- 🌱 I’m currently learning python 
 
 - 📫 How to reach me ... Jackbarnes706@gmail.com
 - 😄 Pronouns: ... he/him
